@@ -1,1 +1,22 @@
+# Anmälan/Registration
 
+### Tid & Plats:
+Annonseras inom kort. Någon gång i juli 2020.
+
+På liten gård i västra Sörmland 2 mil från Katrineholm (Exakt plats meddelas vid anmälan)
+
+### Kostnaden för att delta:
+Hela veckan 700 SEK / vuxen
+
+Barn gratis men frivilligt bidrag är välkommet
+
+Kan ni inte komma hela veckan så är det 130 SEK / dag / vuxen
+
+
+
+### Anmälan
+Görs helst via email till: queenviktoria@gmail.com (alternativt tele: 0151 – 30 007)
+
+Ange vilka dagar ni avser delta, hur många (vuxna / barn), boende (tält, husvagn/bil, annat) och hur ni vill betala.
+
+Betalning: PayPal, Swish, banköverföring eller kontant vid ankomst (ange i anmälan vilket sätt ni föredrar)
