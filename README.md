@@ -36,4 +36,6 @@ Magnus, Viktoria, Jake, Aurora, Andrew, Aron
 Ps. Ni kan gärna redan nu dela med er av idéer på vad ni skulle vilja dela med er av eller förslag på vad ni skulle vilja kunde hända på lägret här på vår facebooksida.
 
 
-Här finns mer [praktisk information](/practical.md)
+Här finns mer information:
+[Praktisk Information](/practical.md),
+[Anmälan](/Anmälan.md)
