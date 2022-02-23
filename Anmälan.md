@@ -15,7 +15,7 @@ Kan ni inte komma hela veckan så är det 130 SEK / dag / vuxen
 
 
 ### Anmälan
-Görs helst via email till: queenviktoria@gmail.com (alternativt tele: 0151 – 30 007)
+Görs helst via email till: magnus0123@gmail.com (alternativt tele: +46762909886)
 
 Ange vilka dagar ni avser delta, hur många (vuxna / barn), boende (tält, husvagn/bil, annat) och hur ni vill betala.
 
