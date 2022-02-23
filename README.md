@@ -38,5 +38,5 @@ Ps. Ni kan gärna redan nu dela med er av idéer på vad ni skulle vilja dela me
 
 Här finns mer information:
 [Praktisk Information](/practical.md),
-[Anmälan](/Anmälan.md)
+[Anmälan](/Anmälan.md),
 [Kontakt](/Kontakt.md)
