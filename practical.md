@@ -27,3 +27,8 @@ Grundidén är självhushållning
 Fullt utrustat utekök för matlagning och disk är iordningställt för alla att använda
 
 Tillgång till kyl/frys & jordkällare
+
+Här finns mer information:
+[Hem](/README.md),
+[Anmälan](/Anmälan.md),
+[Kontakt](/Kontakt.md)
