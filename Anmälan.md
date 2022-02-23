@@ -20,3 +20,8 @@ Görs helst via email till: queenviktoria@gmail.com (alternativt tele: 0151 – 
 Ange vilka dagar ni avser delta, hur många (vuxna / barn), boende (tält, husvagn/bil, annat) och hur ni vill betala.
 
 Betalning: PayPal, Swish, banköverföring eller kontant vid ankomst (ange i anmälan vilket sätt ni föredrar)
+
+Här finns mer information:
+[Hem](/README.md),
+[Praktisk Information](/practical.md),
+[Kontakt](/Kontakt.md)
