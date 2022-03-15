@@ -1,7 +1,7 @@
 # Anmälan/Registration
 
 ### Tid & Plats:
-Annonseras inom kort. Någon gång i juli 2020.
+(Insert dates here)
 
 På liten gård i västra Sörmland 2 mil från Katrineholm (Exakt plats meddelas vid anmälan)
 
