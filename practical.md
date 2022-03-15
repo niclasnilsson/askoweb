@@ -1,7 +1,7 @@
 # Praktisk information
 
 ### Tid
-(insert date here)
+11 Jul kl 12:00 - 17 Jul kl 15:00
 
 ### Plats
 Träffen hålls på en liten gård i Sörmland
