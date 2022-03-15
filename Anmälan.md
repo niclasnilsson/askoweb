@@ -1,7 +1,7 @@
 # Anmälan/Registration
 
 ### Tid & Plats:
-(Insert dates here)
+11 Jul kl 12:00 - 17 Jul kl 15:00
 
 På liten gård i västra Sörmland 2 mil från Katrineholm (Exakt plats meddelas vid anmälan)
 
