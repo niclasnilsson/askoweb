@@ -5,14 +5,8 @@
 
 På liten gård i västra Sörmland 2 mil från Katrineholm (Exakt plats meddelas vid anmälan)
 
-### Kostnaden för att delta:
-Hela veckan 700 SEK / vuxen
-
-Barn gratis men frivilligt bidrag är välkommet
-
-Kan ni inte komma hela veckan så är det 130 SEK / dag / vuxen
-
-
+### Kostnaden:
+Kostnaden är frivilligt bidrag för att hjälpa till att täcka kostnaderna vi har för att göra detta möjiligt.
 
 ### Anmälan
 Görs helst via email till: magnus0123@gmail.com (alternativt tele: +46762909886)
