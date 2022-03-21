@@ -25,7 +25,7 @@ Vi har en stor svart tavla där man varje dag kan skriva upp de aktiviteter man 
 
 Vad är det för ställe då? Jo, det är en liten gård på den Sörmländska landsbygden ungefär 100 meter från en liten sjö. Vi har en stor åker där planen är att man kan slå upp ett tält eller ställa sin husbil/husvagn och campa, det finns gott om utrymme. Vi sätter upp ett stort utomhuskök (under tak) som alla kan använda och vilket ofta blir hela lägrets centrala punkt där allt händer. Det finns en dusch (med varmvatten!) och tre dass. Och en stor lada med massvis av utrymme för barnen att leka och där diskussionsgrupper osv kan hållas om vädret är dåligt.
 
-Vi håller i lägret eftersom vi vet att det betyder väldigt mycket för många, och även för att vi tycker så mycket om det, inte för att tjäna pengar. Men för att kunna fortsätta att sätta upp det år efter år så har vi ett pris på 130kr per vuxen per dag, eller 700kr per vuxen för alla 7 dagar. Barn som tar med sig sina föräldrar kommer gratis.
+Vi håller i lägret eftersom vi vet att det betyder väldigt mycket för många, och även för att vi tycker så mycket om det, inte för att tjäna pengar. KOSTNADEN är frivilligt bidrag för att hjälpa till att täcka kostnaderna vi har för att göra detta möjligt.
 Registrera att ni kommer till sidan Askö familjevecka /Askö family camp på facebook, eller via email magnus0123@gmail.com. Skriv gärna hur många ni är, om ni kommer hela veckan eller annars vilka dagar ni planerar att komma, och hur ni vill betala (banköverföring, swish, paypal, kontant).
 
 Vi ser verkligen fram emot att massa kära vänner kommer tillbaka och hjälper till att göra lägret till den bästa veckan på året, men även alla nya blivande vänner som förhoppningsvis kommer också!
