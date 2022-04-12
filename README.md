@@ -26,7 +26,7 @@ Vi har en stor svart tavla där man varje dag kan skriva upp de aktiviteter man 
 Vad är det för ställe då? Jo, det är en liten gård på den Sörmländska landsbygden ungefär 100 meter från en liten sjö. Vi har en stor åker där planen är att man kan slå upp ett tält eller ställa sin husbil/husvagn och campa, det finns gott om utrymme. Vi sätter upp ett stort utomhuskök (under tak) som alla kan använda och vilket ofta blir hela lägrets centrala punkt där allt händer. Det finns en dusch (med varmvatten!) och tre dass. Och en stor lada med massvis av utrymme för barnen att leka och där diskussionsgrupper osv kan hållas om vädret är dåligt.
 
 Vi håller i lägret eftersom vi vet att det betyder väldigt mycket för många, och även för att vi tycker så mycket om det, inte för att tjäna pengar. KOSTNADEN är frivilligt bidrag för att hjälpa till att täcka kostnaderna vi har för att göra detta möjligt.
-Registrera att ni kommer på sidan [Anmälam](/Anmälan.md).
+Registrera att ni kommer på sidan [Anmälan](/Anmälan.md).
 
 Vi ser verkligen fram emot att massa kära vänner kommer tillbaka och hjälper till att göra lägret till den bästa veckan på året, men även alla nya blivande vänner som förhoppningsvis kommer också!
 Hjälp oss gärna att bjuda in alla som kan vara intresserade av lägret!
